@@ -1,0 +1,1 @@
+Add this shit as bookmark on my iPhone, cause iOS Safari always redirect me awkward places when I launch it.
